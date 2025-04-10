@@ -2,7 +2,7 @@
 
 ### Modulo 1: Hora certa de enrabar
 - Quando o clima estiver quente: Normalmente você só da tapas quando você está no meio da pimbada).
-- Quando ela pedir ou quando você sentir que já pode: No caso 1, comande a mulher falando: Eu dou tapa quando eu quiser!💥.
+- Quando ela pedir ou quando você sentir que já pode: No caso 1, comande a mulher falando algo como: Eu dou tapa quando eu quiser!💥.
 
 ### Modulo 2: Duvidas
 - Caso ela não goste de pimbada agressiva?: FUJA, pimbada fofa não presta kk (zueria, mas é sempre bom).
