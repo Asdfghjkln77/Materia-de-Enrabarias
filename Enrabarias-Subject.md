@@ -15,4 +15,4 @@
 
 ### Modulo 4: Metendo de forma certa e durando mais no ato
 - Como meter: Enfie tudo com força, deixe dentro pro +/- 1 segundo, depois tire todo o seu companheiro de dentro e repita, assim você já pode durar mais doque o esperado
-- Não confunda o pedido de intensidade/velocidade: caso no meio da relaçao isso seja peço, não acelere a metid, inves disso, enfie com mais força, isso concerteza irá agrada-la
+- Não confunda o pedido de intensidade/velocidade: caso no meio da relaçao isso seja peço, não acelere as metidas, inves disso, enfie com mais força, isso concerteza irá agrada-la
